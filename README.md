@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on websites, games
 - 📫 How to reach me discord name: Dr Ferret
 - 😄 Pronouns: She/they
-- ⚡ Fun fact: I own a cat :>
+- ⚡ Fun fact: I own a cat and I am a digital and traditional artist :>
 
 <!---
 Grimyslimy/Grimyslimy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
